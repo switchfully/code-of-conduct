@@ -9,7 +9,7 @@ Therefore, we all agree to the following:
 * When interacting, it is important to make sure to respect each other’s feelings. Especially in a remote context, words can sometimes have a different impact than intended. 
 		
 ## Awesome working/learning experience:
-* Everyone will do our very best to provide the best working/learning experience possible. In this journey, both Switchfully and yourself have responsibilities. Everyone will do all they can to help you when needed. If, at any point, you feel like you’re losing the battle, just let anyone know. Everyone will happily bolster your defenses, but we can only do so when you ask us. Don’t feel shy, we’re all in this together!
+* Everyone will do our very best to provide the best working/learning experience possible. In this journey, both Switchfully and yourself have responsibilities. Everyone will do all they can to help you when needed. If, at any point, you feel like you’re losing the battle, just let anyone know. Everyone will happily bolster your defenses, but we can only do so when you ask someone. Don’t feel shy, we’re all in this together!
 		
 ## Open atmosphere:
 * We have a very open atmosphere at Switchfully. We never judge and experience tells us there’s always a solution to (almost) any problem. If you are in need of a talk, feel free to poke whoever you feel comfortable with for a chat. This can be someone of the Switchfully team, a colleague or someone from Cegeka.  
